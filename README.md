@@ -43,5 +43,6 @@ Planning phase.
 
 ## Connect With Me
 
-LinkedIn: Add Link
-Email: Add Email
+LinkedIn: www.linkedin.com/in/sunny-thallapelli-b6a2a5388
+
+Email: thallapellisunny684@gmail.com
